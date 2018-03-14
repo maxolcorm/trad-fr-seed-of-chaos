@@ -1,1 +1,0 @@
-# trad-fr-seed-of-chaos
